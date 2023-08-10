@@ -1,6 +1,6 @@
-# va-a4 MISSAV永久域名：
+# va-a4 MISSAV/MISSGV永久域名：
 
-https://missav.in
+https://missgv.com
 
 ![image](https://github.com/yihuagongnet/va-a4/assets/141849781/705e3044-d615-4b2c-b10d-855e80af3cba)
 
@@ -9,7 +9,7 @@ https://missav.in
 
 换个浏览器就可以打开，在多个浏览器试着打开下！
 ```
-# va-a4 MISSAV最新网址域名：
+# va-a4 MISSAV/MISSGV最新网址域名：
 
 https://missav.bio
 
