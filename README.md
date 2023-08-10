@@ -8,15 +8,15 @@ https://missav.in
 
 https://missav.bio
 
-https://missav.fun 
+https://missav.fun
 
-https://missav.cfd 
+https://missav.cfd
 
-https://missav.buzz 
+https://missav.buzz
 
-https://missav.gq 
+https://missav.gq
 
-https://missav.tk 
+https://missav.tk
 
 https://missgv.one
 
@@ -30,14 +30,14 @@ https://missgv.cfd
 
 https://missgv.lol
 
-https://missgv.com 
+https://missgv.com
 
-https://missgv.top 
+https://missgv.top
 
-https://missgv.tk 
+https://missgv.tk
 
 https://missgv.gq
 
-https://missgv.cf 
+https://missgv.cf
 
-https://missgv.buzz 
+https://missgv.buzz
